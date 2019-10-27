@@ -1,1 +1,0 @@
-Hello, I am sitting in public
